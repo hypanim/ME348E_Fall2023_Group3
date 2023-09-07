@@ -1,0 +1,2 @@
+# ME348E_Fall2023_Group3
+Group 3 ME 348E Fall 2023
